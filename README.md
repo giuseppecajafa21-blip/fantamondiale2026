@@ -1,0 +1,1 @@
+# fantamondiale2026
